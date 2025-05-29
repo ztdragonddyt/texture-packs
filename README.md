@@ -1,6 +1,4 @@
-# texture-
-Uploading how to use the coordenates in bloxd..io ‐ Hecho con Clipchamp.mp4…
+# texture-packs
+t-x pack 20 subs
 
-
-https://github.com/user-attachments/assets/b7dea951-a840-4c2b-b1b9-c28cb4dd1d0b
-
+https://drive.google.com/drive/folders/1GOYXXltGJnyF2UyqrxxLQhOVyBuBVo82?usp=drive_link  
